@@ -189,7 +189,7 @@ I'm looking forward to see how these 10 extra hours leads to improving the busin
 
 ### Oi Movement
 
-I contributed many hours into a volunteer movement called the Oi Movement. It's a social movement aimed to improve the lives of 10,00 people by helping them create more authentic connections with people.
+I contributed many hours into a volunteer movement called the Oi Movement. It's a social movement aimed to improve the lives of 10,000 people by helping them create more authentic connections with people.
 
 When we started Oi Movement this year, there wasn't any directions. I was tasked to be the head of marketing and I set most of the direction and focus for the year.
 
